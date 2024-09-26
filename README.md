@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @karma13370
 - 👀 i like pentest bug bound
-- 🌱 I’m currently learning ...
+- 🌱 && all ther follows <3
 - 💞️ not to get tired
 - 📫 on the toilet
 - 😄 tor
